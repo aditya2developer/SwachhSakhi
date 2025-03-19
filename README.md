@@ -23,4 +23,29 @@ Why Swachh Sakhi? 🌎
 By leveraging AI, we can take a step toward a sustainable future, ensuring that urban spaces remain clean, hygienic, and environmentally friendly.
 
 
+![Screenshot (92)](https://github.com/user-attachments/assets/ee58868a-2ca3-4ddd-aff6-d140f7113a66)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
